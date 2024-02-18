@@ -1,1 +1,1 @@
-# Vlastn-str-nka---Nike
+# Vlastni stranka---Nike
